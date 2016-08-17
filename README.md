@@ -1,0 +1,2 @@
+# depodolusu
+Türkiye'nin en şık bijuteri ve aksesuar mağazasına hoş geldiniz. Depodolusu.com’da görebileceğiniz ürünlerimiz; Erkek bileklik, çelik bileklik, doğal taş bileklik, Bayan kolye, bayan bileklik, Doğal taş kolye, bileklikli saat, Erkek saat, Bayan saat, Otantik takılar ve Gümüş takılar dır. Özellikle Erkek çelik bilekliklerimiz en çok satılan ürünler arasındadır. Depodolusu.com, her gün yeni ürün ve yeni model garantisi ile tamamı depodolusu.com’a özel olan ürünlerle hizmetinizde.
